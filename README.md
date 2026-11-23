@@ -67,7 +67,7 @@ My next goals are to:
 
 ## 📫 Contact
 
-- **Email:** [ajun8849@gmail.com](mailto:ajun8849@gmail.com)
+- **Email:** [23imitate46@gmail.com](mailto:23imitate46@gmail.com)
 - **Website:** Coming soon
 
 ---
